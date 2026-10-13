@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [19] Sejauh Ini 
 [pesan : Semangat all , makasih fasilitator yang hebat dan bisa menghapal , kesan : aku nggak tahu apa yang kalian anggap dariku selama ini , tapi aku bersyukur dapat bertemu kalian , kalian orang orang hebat ]
+
+#Harapan Kuliah
+[aku dapat menyusul dan bersinar , dapat menemukan solusi untuk mengurangi kejenuhan dalam belajar dan mendapat semangat kompetisi dan kompetensi setiap hari dan setiap waktu , saat ini memang merasa ketinggalan , selalu burnout , ingin menyerah , tanpa istirahat , karena takut tertinggal aku mengorbankan kewarasan dan kesenangan hanya untuk menyusul , ntah berapa lama aku bertahan dan bagaimana namun aku yakin aku pasti bisa]
